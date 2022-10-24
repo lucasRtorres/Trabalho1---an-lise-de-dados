@@ -12,7 +12,7 @@ https://next.canvanizer.com/canvas/rOgIFbHASOWCP
 ![image](https://user-images.githubusercontent.com/86412418/197626943-b02633b0-bdc0-48f3-be1c-4e1b5ed767ef.png)
 
 ## - Video clipe.
-
+Enviado por email.
 ## - Fontes de dados.
 https://www.brasilparalelo.com.br/
 https://www.gazetadopovo.com.br/
@@ -20,3 +20,4 @@ https://www.mises.org.br/
 https://www.brasilparalelo.com.br/noticias/brasil-paralelo-e-a-empresa-de-midia-mais-assinada-do-pais
 https://noticias.r7.com/politica/mais-pessoas-se-declaram-de-direita-do-que-de-esquerda-no-brasil-mostra-pesquisa-do-senado-29062022
 ## - Minhas contribuições.
+Auxiliei na pesquisa acerca do modelo de negócios, proposto pelo aluno Lucas Souto em seu trabalho.
