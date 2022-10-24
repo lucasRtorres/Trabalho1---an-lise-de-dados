@@ -12,7 +12,7 @@ https://next.canvanizer.com/canvas/rOgIFbHASOWCP
 ![image](https://user-images.githubusercontent.com/86412418/197626943-b02633b0-bdc0-48f3-be1c-4e1b5ed767ef.png)
 
 ## - Video clipe.
-Enviado por email.
+https://youtu.be/4UK_g7XDNbI
 ## - Fontes de dados.
 https://www.brasilparalelo.com.br/
 https://www.gazetadopovo.com.br/
